@@ -1,4 +1,4 @@
-## ✨ bem-vindo ao meu perfil ✨ 
+## ✨ bem-vindo(a) ao meu perfil ✨ 
 
 Meu nome é Rômulo Schmitt Gbur
 
